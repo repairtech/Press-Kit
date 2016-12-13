@@ -6,6 +6,6 @@
 For information about RepairTech, its background, and mission, take a look at our [About Page.](https://repairtechsolutions.com/about) 
 
 ### Press
-Without specific permission, members of the press may use the RepairTech, Inc. logo twice per page (with attribution and a link back to RepairTech). More comprehensive assets and licensing are readily available by contacting Connor Fourt at connor@repairtechsolutions.com.
+Without specific permission, members of the press may use the RepairTech, Inc. logo twice per page (with attribution and a link back to RepairTech). More comprehensive assets and licensing are readily available by contacting Max Mero at max@repairtechsolutions.com.
 #####[Download RepairTech Logos](https://slack-files.com/T02BHCYUK-F040GDDG8-dc25f116cc)
 
